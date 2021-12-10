@@ -1,0 +1,1 @@
+Ссылка на скрины https://monosnap.com/list/61b3b9b88a2e606d3f34ff39
